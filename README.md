@@ -1,0 +1,1 @@
+# AI-Applications-Portfolio-Edge-AI-IoT-Ethics-and-Futurism
